@@ -2,7 +2,7 @@
 
 Welcome to the ultimate guide for Fortnite players seeking free V-Bucks! In this article, we will provide you with a comprehensive list of working V-Bucks codes, tips on how to redeem them, and other valuable insights that can enhance your Fortnite experience. Plus, don't forget to check out our exclusive **Fortnite Redeem Code List** for 5000 V-Bucks! Let’s dive into the world of Fortnite V-Bucks and discover how you can get your hands on this coveted in-game currency.
 
-## [✅🔴👉Get Ultimate Free V-Bucks Code!](https://mrlyons.github.io/freecode/)
+## [✅🔴👉Get Ultimate Free Code Here!](https://mrlyons.online/giftcards/)
 
 ## What Are V-Bucks?
 
